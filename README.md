@@ -1,0 +1,1 @@
+# duckzsc2.github.io
